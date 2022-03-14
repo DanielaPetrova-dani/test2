@@ -5,4 +5,4 @@
 //dobvqm red ot git
 // i az
 //poredna promqna
-//promqna 33S
+//promqna 33Sttttt
